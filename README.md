@@ -8,4 +8,6 @@ My pronouns are she/her, but I really don't care. I like to refer to myself with
 I'm mostly AFK, but I also watch :eye::eye:. Feel free to interact! I'll try my best to respond.
 
 I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it.
-![image](https://user-images.githubusercontent.com/102858874/163304986-688fa7a7-a5fe-496c-96dc-44e096f3a844.png)
+
+
+![image](https://user-images.githubusercontent.com/102858874/163708922-3eadf8b2-44fe-4de5-b0e6-56e2bb8e4aad.png)
