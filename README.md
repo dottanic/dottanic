@@ -10,7 +10,7 @@
 
 🐌 : I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it
 
-![image](https://user-images.githubusercontent.com/102858874/164370168-579e506d-435f-439b-9b8f-a4e8bd21dc4d.png)
+![image](https://user-images.githubusercontent.com/102858874/164370682-b3fdb76c-e1dc-4128-924a-6b5380c6e1bb.png)
 
 ------------------------------------------------------------------------------------------------------------------------
 🥩 : Gay ppl DNI
