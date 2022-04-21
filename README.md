@@ -1,4 +1,5 @@
 ### I'm the bench boy! I'm the one who **SITS**!
+-------------------------------------------------------------------------------------------------------------------
 🥪 : My name is Dottie!
 
 🥞 : My pronouns are she/her, but I really don't care. I like to refer to myself with masculine titles.
@@ -7,6 +8,21 @@
 
 🍰 : I'm mostly AFK, but I also watch :eye::eye:. Feel free to interact! I'll try my best to respond.
 
-🐌 : I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it.
+🐌 : I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it
 
-![image](https://user-images.githubusercontent.com/102858874/163708922-3eadf8b2-44fe-4de5-b0e6-56e2bb8e4aad.png)
+![image](https://user-images.githubusercontent.com/102858874/164369239-650e3d71-3248-4e8b-a8a4-28b9d67a3ebe.png)
+
+:imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: 
+------------------------------------------------------------------------------------------------------------------------
+🥩 : Gay ppl DNI
+
+🦐 : Not too fond of Europeans,,,,
+
+🐙 : I fucking hate Anime
+
+🥤 : I LOVE LEANNN!!!!!!!! 💜🟣!🟪💜!!💜!🟣🟪💜🟣💜!🟪!!
+
+🦀 : Normalize hitting your mom
+
+![image](https://user-images.githubusercontent.com/102858874/164367942-3c9facee-8c42-4b53-aea9-1a6895b52ec6.png)
+https://r.mtdv.me/dottanick
