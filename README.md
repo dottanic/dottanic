@@ -10,13 +10,12 @@
 
 🐌 : I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it
 
-![image](https://user-images.githubusercontent.com/102858874/164369239-650e3d71-3248-4e8b-a8a4-28b9d67a3ebe.png)
+![image](https://user-images.githubusercontent.com/102858874/164370168-579e506d-435f-439b-9b8f-a4e8bd21dc4d.png)
 
-:imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: ! :imp: 
 ------------------------------------------------------------------------------------------------------------------------
 🥩 : Gay ppl DNI
 
-🦐 : Not too fond of Europeans,,,,
+🦐 : Not too fond of Europeans....
 
 🐙 : I fucking hate Anime
 
