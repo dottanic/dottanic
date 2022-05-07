@@ -1,6 +1,6 @@
 ### I'm the bench boy! I'm the one who **SITS**!
 -------------------------------------------------------------------------------------------------------------------
-🥪 : My name is Dottie! You may know me as the **Titkok** skin at docks
+🥪 : My name is Dottie! You may know me as the **Titkok** skin at docks.
 
 🥞 : My pronouns are she/her, but I really don't care. I like to refer to myself with masculine titles.
 
