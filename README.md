@@ -2,7 +2,7 @@
 -------------------------------------------------------------------------------------------------------------------
 🥪 : My name is Dottie! You may know me as the **Titkok** skin at docks.
 
-🥞 : My pronouns are she/her, but I really don't care. I like to refer to myself with masculine titles.
+🥞 : My pronouns are she/her, but I really don't care. I like to refer to myself with masculine honorifics.
 
 **My pet peeve is when you mfs sit in the MIDDLE of benches. They are big enough for TWO people so if you sit in the middle of them ALONE, I WILL sit next to you no matter how close, I DON'T CARE!!**
 
