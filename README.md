@@ -1,4 +1,4 @@
-### Kylo Ren stannies dni
+### "Do not take inspirations from my skin!!" Get over yourself.
 -------------------------------------------------------------------------------------------------------------------
 🥪 : My name is Dottie!
 
