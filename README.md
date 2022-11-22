@@ -2,7 +2,7 @@
 -------------------------------------------------------------------------------------------------------------------
 🐙 : My name is Dottie!
 
-🥩 : My pronouns are she/him. I like to refer to myself with masculine honorifics.
+🥩 : My pronouns are he/him.
 
 🏮 : I'm mostly AFK, but I also watch :eye::eye:. Feel free to interact! I'll try my best to respond.
 
