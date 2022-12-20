@@ -1,4 +1,4 @@
-### "Do not take inspirations from my skin!!" Get over yourself.
+### ╰┈➤ ᕲottanic's ᕲisjointed ᕲepositoryˏˋ°•*⁀➷
 -------------------------------------------------------------------------------------------------------------------
 🐙 : My name is Dottie!
 
