@@ -9,8 +9,6 @@
 🦀 : I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it
 > I'm not gonna respond if you continuosly boop me, use your words.
 
-
-![image](https://user-images.githubusercontent.com/102858874/209372177-efbb1c95-a5a5-4c83-abd0-6232f9b511c4.png)
-
+![image](https://user-images.githubusercontent.com/102858874/209373591-b53d9174-fee9-4889-937f-273988e5c3b8.png)
 ------------------------------------------------------------------------------------------------------------------------
 https://r.mtdv.me/dottanick
