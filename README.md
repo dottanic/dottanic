@@ -1,4 +1,4 @@
-### ╰┈➤ ᕲottanic's ᕲisjointed ᕲepositoryˏˋ°•*⁀➷ 💕
+˚₊· ͟͟͞͞➳❥ ᕲottanic's ᕲisjointed ᕲepository⋆.ೃ࿔*:･
 -------------------------------------------------------------------------------------------------------------------
 🐙 : My name is Dottie!
 
@@ -13,9 +13,9 @@
 https://r.mtdv.me/dottanick
 
 ------------------------------------------------------------------------------------------------------------------------
-Oghhhh! I see you digging! 
+·˚ ༘₊· ͟͟͞͞꒰➳ Oghhh! I see you digging! ೄྀ࿐ ˊˎ-
 ------------------------------------------------------------------------------------------------------------------------
-> Find some more treasures!
+> Here's some more lore!
 
 :squid: : I'm 18 years old
 
@@ -31,8 +31,6 @@ Oghhhh! I see you digging!
 > No Straight Roads
 
 > H*talia (im so fucking sorry)
-
-:flamingo:: Monster and Robot Fucker as well as a Mask Kink participant godbless
 
 :soap: : You white trans mfs who use slurs as your whole ass personality are annoying as hell to me
 > how many time do i have to read "i use slurs i can reclaim!!" in your carrds istg say something racist, i dare you
