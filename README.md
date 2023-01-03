@@ -22,11 +22,15 @@ https://r.mtdv.me/dottanick
 :yarn: : Southeast Asian and Muslim
 
 :love_hotel: : **Casual** fan of these fandoms:
-> Star Wars
+> Star Wars *[The Mandalorian // TCW and TBB]*
 
-> Overwatch
+> Marvel *[Spider-Man: ITSV // MCU MoonKnight // Venom (2018)]*
 
-> MCU Moon Knight
+> Overw*tch
+
+> Drawfee
+
+> Hermitcraft
 
 > No Straight Roads
 
