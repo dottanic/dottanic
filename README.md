@@ -13,7 +13,7 @@
 https://r.mtdv.me/dottanick
 
 ------------------------------------------------------------------------------------------------------------------------
-·˚ ༘₊· ͟͟͞͞꒰➳ Oghhh! I see you digging! ೄྀ࿐ ˊˎ-
+·˚ ༘₊· ͟͟͞͞꒰➳ *Oghhh*! I see you digging! ೄྀ࿐ ˊˎ-
 ------------------------------------------------------------------------------------------------------------------------
 > Here's some more lore!
 
@@ -21,7 +21,7 @@ https://r.mtdv.me/dottanick
 
 :yarn: : Southeast Asian and Muslim
 
-:love_hotel: : Casual fan of these fandoms:
+:love_hotel: : **Casual** fan of these fandoms:
 > Star Wars
 
 > Overwatch
@@ -31,6 +31,3 @@ https://r.mtdv.me/dottanick
 > No Straight Roads
 
 > H*talia (im so fucking sorry)
-
-:soap: : You white trans mfs who use slurs as your whole ass personality are annoying as hell to me
-> how many time do i have to read "i use slurs i can reclaim!!" in your carrds istg say something racist, i dare you
