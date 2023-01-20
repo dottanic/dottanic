@@ -6,6 +6,8 @@
 
 🍣 : I'm mostly AFK, but I also watch :eye::eye:. Feel free to interact! I'll try my best to respond.
 
+🍅 : Kuromi and My Melody skins scare the shit outta me
+
 🦀 : I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it
 > I'm not gonna respond if you continuosly boop me, use your words.
 
@@ -13,15 +15,14 @@
 https://r.mtdv.me/dottanick
 
 ------------------------------------------------------------------------------------------------------------------------
-·˚ ༘₊· ͟͟͞͞꒰➳ *Oghhh*! I see you digging! ೄྀ࿐ ˊˎ-
+·˚ ༘₊· ͟͟͞͞꒰➳ Extra Lore ೄྀ࿐ ˊˎ-
 ------------------------------------------------------------------------------------------------------------------------
-> Here's some more lore!
 
-:squid: : I'm 18 years old
+🦑 : I'm 18 years old
 
-:yarn: : Southeast Asian and Muslim
+🧶 : Southeast Asian and Muslim
 
-:love_hotel: : **Casual** fan of these fandoms:
+🏩 : **Casual** fan of these fandoms:
 > Star Wars *[The Mandalorian // TCW and TBB]*
 
 > Marvel *[Spider-Man: ITSV // MCU MoonKnight // Venom (2018)]*
