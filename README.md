@@ -1,4 +1,4 @@
-˚₊· ͟͟͞͞➳❥ ᕲottanic's ᕲisjointed ᕲepository⋆.ೃ࿔*:･
+˚₊· ͟͟͞͞➳❥ ᕲottie's ᕲisjointed ᕲepository⋆.ೃ࿔*:･
 ------------------------------------------------------------------------------------------------------------------
 
 🐙 : I'm mostly AFK, but I also watch :eye::eye:. Feel free to interact! I'll try my best to respond.
