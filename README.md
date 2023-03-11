@@ -19,7 +19,7 @@ https://r.mtdv.me/dottanick
 ·˚ ༘₊· ͟͟͞͞꒰➳ Intєrєst! ೄྀ࿐ ˊˎ-
 ------------------------------------------------------------------------------------------------------------------------
 
-> The Mandalorian // TCW and TBB
+> The Mandalorian // TBB and TCW
 
 > MCU Moon Knight // SpiderMan: ITSV
 
@@ -29,7 +29,7 @@ https://r.mtdv.me/dottanick
 
 > Poptropica
 
-> Drawfee
+> Drawfee // Drawtectives 
 
 > Hermitcraft // Last Life SMP series
 
