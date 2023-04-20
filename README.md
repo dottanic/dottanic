@@ -19,20 +19,20 @@ https://r.mtdv.me/dottanick
 ·˚ ༘₊· ͟͟͞͞꒰➳ Intєrєst! ೄྀ࿐ ˊˎ-
 ------------------------------------------------------------------------------------------------------------------------
 
-> The Mandalorian // TBB and TCW
+🛸 : The Mandalorian // TBB and TCW
 
-> MCU Moon Knight // SpiderMan: ITSV
+📽️ : MCU Moon Knight // SpiderMan: ITSV
 
-> Overw*tch
+🕑 : Overw*tch
 
-> Subway Surfers
+🚊 : Subway Surfers
 
-> Poptropica
+🎈 : Poptropica
 
-> Drawfee // Drawtectives 
+✏️ : Drawfee // Drawtectives 
 
-> Hermitcraft // Last Life SMP series
+🚦 : Hermitcraft // Last Life SMP series
 
-> No Straight Roads
+🎸 : No Straight Roads
 
-> H*talia (im so fucking sorry)
+🌏 : H*talia (im so fucking sorry)
