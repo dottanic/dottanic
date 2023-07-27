@@ -10,7 +10,7 @@
 
 :circus_tent: : Sign my guestbook! Write whatever you want on there: https://dottanic.123guestbook.com/
 
-![image](https://github.com/dottanic/dottanic/assets/102858874/c927ff37-4db3-469d-80c4-a7b3e3aaaa5c)
+![image](https://github.com/dottanic/dottanic/assets/102858874/8327cd0d-19d6-443b-84af-75b0653f134b)
 https://r.mtdv.me/dottanick
 
 ------------------------------------------------------------------------------------------------------------------------
