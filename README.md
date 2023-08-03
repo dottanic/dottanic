@@ -3,7 +3,7 @@
 
 🐙 : I'm mostly AFK, but I also watch :eye::eye:. Feel free to interact! I'll try my best to respond.
 
-🍣 : I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it
+🍣 : I like cuddles! I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it
 > I'm not gonna respond if you continuosly boop me, use your words.
 
 🥩 : If you think "do not take inspiration from my skins!" is a reasonable thing to say then you're entitled and delusional. I'm gonna take *sooo* much inspiration from your skins out of spite.
