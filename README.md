@@ -10,7 +10,7 @@
 
 :circus_tent: : Sign my guestbook! Write whatever you want on there: https://dottanic.123guestbook.com/
 
-🫀 : My skins are OCs and Cosplay and does not represent what I actually look like unless stated other wise. I am a lightskin Southeast Asian.
+🫀 : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Southeast Asian.
 
 ![image](https://github.com/dottanic/dottanic/assets/102858874/9628f638-77dd-44bb-9c01-e9d434cc22f3)
 https://r.mtdv.me/dottanick
