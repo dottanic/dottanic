@@ -10,7 +10,7 @@
 
 :circus_tent: : Sign my guestbook! Write whatever you want on there: https://dottanic.123guestbook.com/
 
-🫀 : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Southeast Asian.
+🖍️ : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Southeast Asian.
 
 ![image](https://github.com/dottanic/dottanic/assets/102858874/b7c4f7fd-4727-4b47-ab6f-ebabce63ea07)
 
@@ -20,20 +20,20 @@ https://r.mtdv.me/dottanick
 ·˚ ༘₊· ͟͟͞͞꒰➳ Intєrєst! ೄྀ࿐ ˊˎ-
 ------------------------------------------------------------------------------------------------------------------------
 
-🔴 : The Mandalorian // TBB and TCW
+🦑 : The Mandalorian // TBB and TCW
 
-🟠 : MCU Moon Knight // SpiderMan: ITSV and ATSV
+🏩 : MCU Moon Knight // SpiderMan: ITSV and ATSV
 
-🟡 : Overw*tch
+🦩 : Overw*tch
 
-🟢 : Subway Surfers
+🌸 : Subway Surfers
 
-🔵 : Poptropica
+🪱 : Poptropica
 
-🟣 : Drawfee // Drawtectives 
+🧠 : Drawfee // Drawtectives 
 
-⚪ : Hermitcraft // Last Life SMP series
+🧼 : Hermitcraft // Last Life SMP series
 
-⚫ : No Straight Roads
+💕 : No Straight Roads
 
-🟤 : H*talia (im so fucking sorry)
+🧶 : H*talia (im so fucking sorry)
