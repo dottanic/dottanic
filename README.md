@@ -23,6 +23,7 @@ https://r.mtdv.me/dottanick
 🦑 : The Mandalorian // TBB and TCW
 
 🏩 : MCU Moon Knight // SpiderMan: ITSV and ATSV
+> im not a comic book reader but the spiderverse films are very near and dear to my heart. come and chat to me about it unless you wanna yap about miguel fucking ohara then i dont wanna hear it
 
 🦩 : Overw*tch
 
