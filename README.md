@@ -27,7 +27,7 @@ https://r.mtdv.me/dottanick
 > im not a comic book reader but the spiderverse films are very near and dear to my heart. come and chat to me about it unless you wanna yap about miguel fucking ohara then i dont wanna hear it
 
 🦩 : Overw*tch
-> DNI if youre one of those blizzard bootlickers i keep seeing on twitter. im not gonna forget the disgusting lawsuits the corporation was involved with no matter how many quirky "queer and POC characters ^^" they crank out
+> DNI if youre one of those blizzard bootlickers i keep seeing on twitter. acting like overwatch created diversity for their cookie cutter characters is crazy
 
 🌸 : Subway Surfers
 
