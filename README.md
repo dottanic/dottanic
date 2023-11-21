@@ -44,8 +44,8 @@ https://r.mtdv.me/dottanick
 -------------------------------------------------------------------------------------------------------------------------
 Uh oh, stinky
 -----------------------------
-DNI proshippers. Proudly calling yourself a proshipper is weird as hell. However, I don' view you as a bad person if you **keep** it contained in your **fantasy**.
-> except for pedophilia tho, get the fuck away from me
+DNI proshippers. Proudly calling yourself a proshipper is weird as hell. However, I don't view you as a bad person if you **keep** it contained in your **fantasy**. I'll probably block you though.
+> except for pedophilia tho, its on SIGHT
 
 DNI if you think you are morally superiour then proshippers. Unless said proshipper actively harmed someone, it doesn't warrant you to bully/doxx/harrass others, you just want to put others down without feeling bad as a person even though you are a sad, sad husk of a person.
 > if this pisses you off, go touch grass. if youre gonna bully me for this, you just proved my point.
