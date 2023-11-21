@@ -40,3 +40,21 @@ https://r.mtdv.me/dottanick
 💕 : No Straight Roads
 
 🧶 : H*talia (im so fucking sorry)
+
+-------------------------------------------------------------------------------------------------------------------------
+Uh oh, stinky
+-----------------------------
+DNI proshippers. Proudly calling yourself a proshipper is weird as hell. However, I don' view you as a bad person if you **keep** it contained in your **fantasy**.
+> except for pedophilia tho, get the fuck away from me
+
+DNI if you think you are morally superiour then proshippers. Unless said proshipper actively harmed someone, it doesn't warrant you to bully/doxx/harrass others, you just want to put others down without feeling bad as a person even though you are a sad, sad husk of a person.
+> if this pisses you off, go touch grass. if youre gonna bully me for this, you just proved my point.
+
+DNI edtwt people
+> get well soon
+
+DNI if you think femboy and traps are genuine slurs, it's not. It's just incredibly rude to call transwomen that.
+
+-----------
+DNI if you are a Kylo Ren enjoyer lol. IDC how much of a dykefaggottranny whore you are, he's nothing but a racist cishet man to me. He's racist and he hates trans people and he quite literally commits genocide and probably would not like you. Come with me to the better world of stormjedipilot instead ✌️
+> on a serious note, i just hate what his character stands for, a cockblock for Rey and Finn's position as mainstream Star Wars' beloved protagonists. We cannot have a strong female jedi and a black jedi without a white man hogging the spotlight apparently,,, also if you are a true faggot then you would be into FinnPoe, just saying
