@@ -37,10 +37,12 @@ https://r.mtdv.me/dottanick
 
 🧼 : Hermitcraft // Last Life SMP series
 
-💕 : No Straight Roads
+👘 : No Straight Roads
 
-🧶 : H*talia 
+💕 : H*talia 
 > im so fucking sorry
+
+🧶 : Epic: The Musical
 
 
 
