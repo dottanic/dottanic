@@ -8,9 +8,9 @@
 
 🥩 : If you think "do not take inspiration from my skins!" is a reasonable thing to say then you're entitled and delusional. I'm gonna take *sooo* much inspiration from your skins out of spite.
 
-:circus_tent: : Sign my guestbook! Write whatever you want on there: https://dottanic.123guestbook.com/
+🖍️ : Sign my guestbook! Write whatever you want on there: https://dottanic.123guestbook.com/
 
-🖍️ : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Southeast Asian.
+🎪 : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Southeast Asian.
 
 ![image](https://github.com/dottanic/dottanic/assets/102858874/b7c4f7fd-4727-4b47-ab6f-ebabce63ea07)
 
