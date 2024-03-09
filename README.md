@@ -24,10 +24,10 @@ https://r.mtdv.me/dottanick
 🦑 : The Mandalorian // TBB and TCW
 
 🏩 : MCU Moon Knight // SpiderMan: ITSV and ATSV
-> im not a comic book reader but the spiderverse films are very near and dear to my heart. come and chat to me about it unless you wanna yap about miguel fucking ohara then i dont wanna hear it
+> im not a comic book reader but the spiderverse films are very near and dear to my heart. come and chat to me about it
 
 🦩 : Overw*tch
-> DNI if youre one of those blizzard bootlickers i keep seeing on twitter. acting like overwatch created diversity for their cookie cutter characters is crazy
+> i dont play the game, i just like the characters and lore. i am extremely critical of whatever shit theyre doing on this ip. i do NOT care for whatever queer representation they have for this game bruh lmao
 
 🌸 : Subway Surfers
 
