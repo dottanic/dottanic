@@ -12,8 +12,7 @@
 
 🎪 : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Southeast Asian.
 
-![image](https://github.com/dottanic/dottanic/assets/102858874/b7c4f7fd-4727-4b47-ab6f-ebabce63ea07)
-
+<img src="blob:chrome-untrusted://media-app/17794696-1fe6-44ac-b35d-c63be98d23cd" alt="squidbanner.png"/>![image](https://github.com/dottanic/dottanic/assets/102858874/c6c88062-7cc7-4677-877e-934121e40f9a)
 https://r.mtdv.me/dottanick
 
 ------------------------------------------------------------------------------------------------------------------------
