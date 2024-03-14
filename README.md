@@ -27,7 +27,7 @@ https://r.mtdv.me/dottanick
 > im not a comic book reader but the spiderverse films are very near and dear to my heart. come and chat to me about it
 
 🦩 : Overw*tch
-> i dont play the game, i just like the characters and lore. i am extremely critical of whatever shit theyre doing on this ip. i do NOT care for whatever queer representation they have for this game bruh lmao
+> i dont play the game, i just like the characters and lore. i am extremely critical and do NOT care for whatever "sincere" representation/message they have for this game purely because its an ip owned by blizzard.
 
 🌸 : Subway Surfers
 
