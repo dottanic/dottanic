@@ -21,7 +21,7 @@ https://r.mtdv.me/dottanick
 ------------------------------------------------------------------------------------------------------------------------
 **I'm only a CASUAL fan for all of these fandoms so don't expect me to know everything about it.**
 
-🦑 : The Mandalorian // TBB and TCW
+🦑 : The Mandalorian // TBB
 
 🏩 : MCU Moon Knight // SpiderMan: ITSV and ATSV
 > im not a comic book reader but the spiderverse films are very near and dear to my heart. come and chat to me about it
@@ -32,6 +32,7 @@ https://r.mtdv.me/dottanick
 🌸 : Subway Surfers
 
 🪱 : Poptropica
+> i miss the good ol days :( gameshow and ghost story island, how i miss you...
 
 🧠 : Drawfee // Drawtectives 
 
