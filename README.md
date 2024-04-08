@@ -32,7 +32,7 @@ https://r.mtdv.me/dottanick
 🌸 : Subway Surfers
 
 🪱 : Poptropica
-> i miss the good ol days :( gameshow and ghost story island, how i miss you...
+> i miss the good ol days :( gameshow, ghost story and vampire's curse were my favourite islands
 
 🧠 : Drawfee // Drawtectives 
 
