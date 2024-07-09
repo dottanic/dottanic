@@ -19,28 +19,28 @@ https://r.mtdv.me/dottanick
 ------------------------------------------------------------------------------------------------------------------------
 **I'm only a CASUAL fan for all of these fandoms so don't expect me to know everything about it.**
 
-🦑 : The Mandalorian // TBB
+🐑 : The Mandalorian // TBB
 
-🏩 : MCU Moon Knight // SpiderMan: ITSV and ATSV
+🐑 : MCU Moon Knight // SpiderMan: ITSV and ATSV
 > im not a comic book reader but the spiderverse films are very near and dear to my heart. come and chat to me about it
 
-🦩 : Overw*tch
+🐑 : Overw*tch
 > i dont play the game, i just like the characters and lore. i am extremely critical and do NOT care for whatever "sincere" representation/message they have for this game purely because its an ip owned by blizzard.
 
-🌸 : Subway Surfers
+🐑 : Subway Surfers
 
-🪱 : Poptropica
+🐑 : Poptropica
 > i miss the good ol days :( gameshow, ghost story and vampire's curse were my favourite islands
 
-🧠 : Drawfee // Drawtectives 
+🐑 : Drawfee // Drawtectives 
 
-🧼 : Hermitcraft // Last Life SMP series
+🐑 : Hermitcraft // Last Life SMP series
 
-👘 : No Straight Roads
+🐑 : No Straight Roads
 
-💕 : H*talia 
+🐑 : H*talia 
 > im so fucking sorry
 
-🧶 : Epic: The Musical
+🐑 : Epic: The Musical
 
-🍧 : Glorb's raps in the Spongebob universe
+🐑 : Glorb's raps in the Spongebob universe
