@@ -1,14 +1,14 @@
 ˚₊· ͟͟͞͞➳❥ ᕲottie's ᕲisjointed ᕲepository⋆.ೃ࿔*:･
 ------------------------------------------------------------------------------------------------------------------
 
-🐙 : I'm mostly AFK, but I also watch :eye::eye:. Feel free to interact! I'll try my best to respond.
+🐟 : I'm mostly AFK, but I also watch :eye::eye:. Feel free to interact! I'll try my best to respond.
 
-🍣 : I like cuddles! I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it.
+🐟 : I like cuddles! I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it.
 > I'm not gonna respond if you continuosly boop me, use your words.
 
-🥩 : If you think "do not take inspiration from my skins!" is a reasonable thing to say then you're entitled and delusional. I'm gonna take *sooo* much inspiration from your skins out of spite.
+🐟 : If you think "do not take inspiration from my skins!" is a reasonable thing to say then you're entitled and delusional. I'm gonna take *sooo* much inspiration from your skins out of spite.
 
-🎪 : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Southeast Asian.
+🐟 : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Southeast Asian.
 
 ![image](https://github.com/dottanic/dottanic/assets/102858874/7d2b6f43-9643-4123-90e9-0ff083ea7d3d)
 
@@ -44,6 +44,3 @@ https://r.mtdv.me/dottanick
 🧶 : Epic: The Musical
 
 🍧 : Glorb's raps in the Spongebob universe
-
-
-
