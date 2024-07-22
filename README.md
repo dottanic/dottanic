@@ -10,6 +10,8 @@
 
 🐟 : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Southeast Asian.
 
+🐟 : Care to sign my guest/atabook? Come say hi! :) [
+](https://dottanic.atabook.org/)
 ![image](https://github.com/dottanic/dottanic/assets/102858874/7d2b6f43-9643-4123-90e9-0ff083ea7d3d)
 
 https://r.mtdv.me/dottanick
