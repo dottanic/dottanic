@@ -36,7 +36,7 @@ https://r.mtdv.me/dottanick
 
 🦈 : Drawfee // Drawtectives 
 
-🦈 : Hermitcraft // Last Life SMP series
+🦈 : Hermitcraft // Traffic Life series
 
 🦈 : No Straight Roads
 
