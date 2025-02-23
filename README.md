@@ -10,7 +10,7 @@
 
 🐟 : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Malay.
 
-🐟 : Check out my strawpageeee :33 https://dottanic.straw.page/
+🐟 : Check out my strawpageeee :33 https://dottle.straw.page/
 
 ![image](https://github.com/dottanic/dottanic/assets/102858874/7d2b6f43-9643-4123-90e9-0ff083ea7d3d)
 
