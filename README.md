@@ -6,6 +6,8 @@
 🐟 : I like cuddles! I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it.
 > I'm not gonna respond if you continuosly boop me, use your words.
 
+🐟 : DNI if you're 20+ years old and still take proship vs anti shit seriously
+
 🐟 : If you think "do not take inspiration from my skins!" is a reasonable thing to say then you're entitled and delusional. I'm gonna take *sooo* much inspiration from your skins out of spite.
 
 🐟 : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Malay.
