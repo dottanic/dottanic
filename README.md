@@ -1,12 +1,7 @@
-˚₊· ͟͟͞͞➳❥ ᕲottie's ᕲisjointed ᕲepository⋆.ೃ࿔*:･
-------------------------------------------------------------------------------------------------------------------
 
-🐟 : I'm mostly AFK, but I also watch :eye::eye:. Feel free to interact! I'll try my best to respond.
+**DNI** : 20+ year olds that still takes proship vs anti discourse seriously. white people who says "i says slurs i can reclaim". europeans. ppl who think misandry is a real problem men face in the real world. women who call themselves femcels. 4chan users, no idgaf if youre trans, what the fuck are you doing there. fujos with boring ass yaoi ships. ppl who calls a ship "yuri" when a man is involved. "old man yaoi "likers"". 
 
-🐟 : I like cuddles! I don't have TT/TD so you can do whatever you want to me. I'll just hide you if you're really pushing it.
-> I'm not gonna respond if you continuosly boop me, use your words.
-
-🐟 : DNI if you're 20+ years old and still take proship vs anti shit seriously
+-------------------------------------------------------------
 
 🐟 : If you think "do not take inspiration from my skins!" is a reasonable thing to say then you're entitled and delusional. I'm gonna take *sooo* much inspiration from your skins out of spite.
 
@@ -19,34 +14,8 @@
 https://r.mtdv.me/dottanick
 
 ------------------------------------------------------------------------------------------------------------------------
-·˚ ༘₊· ͟͟͞͞꒰➳ Intєrєst! ೄྀ࿐ ˊˎ-
-------------------------------------------------------------------------------------------------------------------------
-**I'm only a CASUAL fan for all of these fandoms so don't expect me to know everything about it.**
+fandoms:
 
-🦈 : The Mandalorian // TBB
-
-🦈 : MCU Moon Knight // SpiderMan: ITSV and ATSV
-> im not a comic book reader but the spiderverse films are very near and dear to my heart. come and chat to me about it
-
-🦈 : Overw*tch
-> i dont play the game, i just like the characters and lore. i am extremely critical and do NOT care for whatever "sincere" representation/message they have for this game purely because its an ip owned by blizzard.
-
-🦈 : Subway Surfers
-
-🦈 : Poptropica
-> i miss the good ol days :( gameshow, ghost story and vampire's curse were my favourite islands
-
-🦈 : Drawfee // Drawtectives 
-
-🦈 : Hermitcraft // Traffic Life series
-
-🦈 : No Straight Roads
-
-🦈 : H*talia 
-> im so fucking sorry
-
-🦈 : Epic: The Musical
-
-🦈 : Fairly Oddparents (A New Wish)
+mickey 17, overwatch, hermitcraft, traffic life series smp, the spiderverse movies, mcu moonknight, drawfee, good mythical morning, epic the musical, fairly oddparents, subway surfers, no straight roads, poptropica, the mandalorian, the bad batch, h*talia (its complicated)
 
 -----------------------------------------------------------------------------------------------------
