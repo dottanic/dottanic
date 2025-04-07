@@ -9,13 +9,10 @@
 
 🐟 : Check out my strawpageeee :33 https://dottle.straw.page/
 
-![image](https://github.com/dottanic/dottanic/assets/102858874/7d2b6f43-9643-4123-90e9-0ff083ea7d3d)
-
-https://r.mtdv.me/dottanick
-
 ------------------------------------------------------------------------------------------------------------------------
 fandoms:
 
 mickey 17, overwatch, hermitcraft, traffic life series smp, the spiderverse movies, mcu moonknight, drawfee, good mythical morning, epic the musical, fairly oddparents, subway surfers, no straight roads, poptropica, the mandalorian, the bad batch, h*talia (its complicated)
 
 -----------------------------------------------------------------------------------------------------
+https://r.mtdv.me/dottanick
