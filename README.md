@@ -1,5 +1,5 @@
 
-**DNI** : 20+ year olds that still take proship vs anti discourse seriously. white people who says "i says slurs i can reclaim". europeans. ppl who think misandry is a real problem men face in the real world. "radical feminist". 4chan users, no idgaf if youre trans, what the fuck are you doing there. fujos with boring ass yaoi ships. ppl who calls a ship "yuri" when a man is involved. "old man yaoi "likers"". girls who think shit like barbie (2023) is genuinely empowering. bisexuals. miguel ohara stans. fans of overwatch
+**DNI** : 20+ year olds that still take proship vs anti discourse seriously*. white people who says "i says slurs i can reclaim". europeans. ppl who think misandry is a real problem men face in the real world. "radical feminist". 4chan users, no idgaf if youre trans, what the fuck are you doing there. fujos with boring ass yaoi ships. ppl who calls a ship "yuri" when a man is involved. "old man yaoi "likers"". girls who think shit like barbie (2023) is genuinely empowering. bisexuals. miguel ohara stans. fans of overwatch
 
 -------------------------------------------------------------
 
@@ -16,3 +16,9 @@ mickey 17, overwatch, hermitcraft, traffic life series smp, the spiderverse movi
 
 -----------------------------------------------------------------------------------------------------
 https://r.mtdv.me/dottanick
+
+-------------------------------------------------------------------------------------------------------
+
+*i hate both proshippers and anti shippers. anyone proudly calling themselves proshippers are weirdos but anti shippers are dumb ass hypocrites who dislike things based on their own squickness levels, not actual morals. if antis actually believe in what theyre saying, i would see them campaining to stop the production of slasher films or call of duty games. "fiction affects reality" and all that. 
+
+i know the difference between someone who enjoys disturbing fiction (or even someone who is coping with their TRAUMA) vs someone with an actual harmful ideology. 
