@@ -21,4 +21,4 @@ https://r.mtdv.me/dottanick
 
 *i hate both proshippers and anti shippers. anyone proudly calling themselves proshippers are weirdos but anti shippers are dumb ass hypocrites who dislike things based on their own squickness levels, not actual morals. if antis actually believe in what theyre saying, i would see them campaining to stop the production of slasher films or call of duty games. "fiction affects reality" and all that. 
 
-i know the difference between someone who enjoys disturbing fiction (or even someone who is coping with their TRAUMA) vs someone with an actual harmful ideology. 
+i know the difference between someone who enjoys disturbing fiction (or even someone who is coping with their TRAUMA) vs "lolicunny88".
