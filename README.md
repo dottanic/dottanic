@@ -3,7 +3,7 @@
 
 -------------------------------------------------------------
 
-🐟 : If you think "do not take inspiration from my skins!" is a reasonable thing to say then you're entitled and delusional. I'm gonna take *sooo* much inspiration from your skins out of spite.
+🐟 : I like sitting on the benches at docks.
 
 🐟 : My skins are OCs and Cosplay and does not represent what I actually look like unless stated otherwise. I am a lightskin Malay.
 
