@@ -1,5 +1,5 @@
 
-**DNI** : 20+ year olds that still take proship vs anti discourse seriously*. white people who says "i says slurs i can reclaim". europeans. ppl who think misandry is a real problem men face in the real world. "radical feminist". 4chan users, no idgaf if youre trans, what the fuck are you doing there. fujos with boring ass yaoi ships. ppl who calls a ship "yuri" when a man is involved. "old man yaoi "likers"". girls who think shit like barbie (2023) is genuinely empowering. bisexuals. miguel ohara stans. fans of overwatch
+**DNI** : 20+ year olds that still take proship vs anti discourse seriously*. white people who says "i says slurs i can reclaim". europeans. ppl who think misandry is a real problem men face in the real world. "radical feminist". 4chan users, no idgaf if youre trans, what the fuck are you doing there. call of duty fans. fujos with boring ass yaoi ships. ppl who calls a ship "yuri" when a man is involved. "old man yaoi "likers"". girls who think shit like barbie (2023) is genuinely empowering. bisexuals. miguel ohara stans. fans of overwatch
 
 -------------------------------------------------------------
 
