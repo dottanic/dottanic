@@ -5,7 +5,7 @@
 
 🐟 : I like sitting on the benches at docks
 
-🐟 : Let's have fun and flolick together weeeeeeeee
+🐟 : Let's have fun and frolick together weeeeeeeee
 
 🐟 : Check out my strawpageeee :33 https://dottle.straw.page/
 
