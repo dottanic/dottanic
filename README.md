@@ -6,7 +6,7 @@ guh
 
 🐟 : Let's have fun and frolick together weeeeeeeee
 
-🐟 : Check out my strawpageeee :33 https://dottle.straw.page/
+🐟 : Check out my strawpageeee :33 https://dottanic.straw.page/
 
 ------------------------------------------------------------------------------------------------------------------------
 fandoms:
